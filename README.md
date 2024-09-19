@@ -1,10 +1,10 @@
-# 疾风云官网地址2024最新入口
+# 疾风云官网地址2024最新入口 + 优惠码
 
 疾风云跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。下面是最新地址：
 
 永久官网：[http://jifengcloud.net](https://xuv.cc/out/jifeng)
 
-地址1：[https://jf16.net](https://jf16.net/auth/register?code=PLZY)
+地址1：[https://jif6.net](https://jif6.net/auth/register?code=PLZY)
 
 ## 简介
 
@@ -16,12 +16,9 @@
 
 ## 疾风云优惠码
 
-疾风云激情618年中特惠活动 - 年费会员骨折优惠：
+疾风云最新优惠码
 
-+ 入门年费 享8.5折. 优惠码：[jf618](https://xuv.cc/out/jifeng)
-+ 入门以上 享8.0折. 优惠码：[jf6188](https://xuv.cc/out/jifeng)
-
-疾风云包年9折优惠代码（长期有效）：[jifeng](https://xuv.cc/out/jifeng)
+疾风云包年85折优惠代码（长期有效）：[jifeng](https://xuv.cc/out/jifeng)
 
 ## 疾风云特色优势
 
