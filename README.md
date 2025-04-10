@@ -4,9 +4,9 @@
 
 永久官网：[http://jifengcloud.net](https://xuv.cc/out/jifeng)
 
-地址1：[https://jif6.net](https://jif6.net/auth/register?code=PLZY)
+地址1：[https://jif44.net](https://jif44.net/auth/register?code=PLZY)
 
-地址2：[https://jfcat.net](https://jfcat.net/auth/register?code=PLZY)
+地址2：[https://jfdog.net](https://jfdog.net/auth/register?code=PLZY)
 
 ## 简介
 
@@ -20,7 +20,7 @@
 
 疾风云最新优惠码
 
-疾风云2025新年包年7折优惠代码（长期有效）：[jf2025](https://xuv.cc/out/jifeng)
+疾风云2025包年6.9折优惠代码（长期有效）：[jf2025](https://xuv.cc/out/jifeng)
 
 ## 疾风云特色优势
 
