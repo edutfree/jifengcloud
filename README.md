@@ -8,6 +8,8 @@
 
 地址2：[https://jfdog.net](https://jfdog.net/auth/register?code=PLZY)
 
+地址2：[https://jfcat.net](https://jfcat.net/auth/register?code=PLZY)
+
 ## 简介
 
 疾风云怎么样？jifengCloud 疾风云机场，老牌机场旗下的新开分站，支持 Clash 节点，支持 SSR 节点，支持 V2ray 节点、Trojan节点，国内中转节点。
